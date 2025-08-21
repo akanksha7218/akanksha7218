@@ -59,7 +59,7 @@
 ## 🔹 Connect with Me
 📧 Email: [akankshamalusare03@gmail.com](mailto:akankshamalusare03@gmail.com)  
 💼 LinkedIn: [linkedin.com/in/akanksha-malusare-7b797b230](https://www.linkedin.com/in/akanksha-malusare-7b797b230)  
-🔗 GitHub: [github.com/akankshamalusare](https://github.com/akankshamalusare)  
+🔗 GitHub: [https://github.com/akanksha7218](https://github.com/akanksha7218)
 
 ---
 
